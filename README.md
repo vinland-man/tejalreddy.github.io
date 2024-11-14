@@ -1,1 +1,0 @@
-# tejalreddy.github.io
